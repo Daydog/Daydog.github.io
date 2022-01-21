@@ -8,3 +8,4 @@ American Accent Training
 Chapter | Name | Category | Exercise | Day |
 ---- | ---- | ---- | ---- | ---- |
 1 | The American sound | Prep Knowledge | 4 | 2020-08-31 |
+2 | 美音☞进阶](https://www.bilibili.com/video/BV17J411K7mG?p=19) | 
