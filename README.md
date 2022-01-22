@@ -10,3 +10,4 @@ Chapter | Name | Category | Exercise | Day |
 1 | The American sound | Prep Knowledge | 4 | 2020-08-31 |
 2 | 美音☞进阶](https://www.bilibili.com/video/BV17J411K7mG?p=19) | 
 3 | 01美音的特征 |
+4 | 01美音的特征 |
